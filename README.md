@@ -1,1 +1,0 @@
-# brandontylerhall.github.io
